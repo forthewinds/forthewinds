@@ -1,3 +1,3 @@
 ![image](https://i.pinimg.com/736x/34/12/ef/3412efc4606ea2ec22c1f5febb253f72.jpg)
 
-> *"Look, whoever he used to be, the guy he is now, I don't think he's the kind you save. He's the kind you stop."*
+> *"You up for a little tough love?"*
